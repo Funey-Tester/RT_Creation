@@ -1,5 +1,3 @@
 # RT_Creation
 
-fawefaf
-
-我就是新功能 ^^
+我已經更新囉 11/22
